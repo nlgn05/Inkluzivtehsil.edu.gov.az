@@ -1,0 +1,1 @@
+# linkluzivtehsil.edu.az
